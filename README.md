@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Priyanshu-Singh
+- 👀 I’m interested in Video Editing
+- 🌱 I’m currently learning C++ 
+- 💞️ I’m looking to collaborate on Microsoft
+- 📫 How to reach me 
+- Instagram- iampriyanshusingh_
